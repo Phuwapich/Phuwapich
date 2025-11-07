@@ -1,1 +1,1 @@
-[G](https://youtu.be/PyQDcL1Equw)
+(https://youtu.be/PyQDcL1Equw)
